@@ -1,4 +1,4 @@
-https://www.freepik.com/free-vector/gradient-business-linkedin-banner_37190633.htm#fromView=keyword&page=1&position=1&uuid=0325c552-eda4-4145-92f7-fbb01d08ac15
+
 
 
 ## Hi there 👋
